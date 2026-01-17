@@ -1,12 +1,19 @@
 💫 Hi 👋, I'm Kawer
 
 A passionate Software Engineer Student || Java developer || Open to work
+
 Email Me 👉 ✉️ balikd663@gmail.com For Collaboration/Project or Anything Else. 😊
+
 🌱 I’m currently learning: Java
+
 👯 I’m looking to collaborate on:  project development
+
 🤔 I’m looking for help with: job
+
 💬 Ask me about: Collaboration, Tech Support
+
 😄 Pronouns: Kawer
+
 ⚡ Fun fact: The first computer bug was literally a bug — in 1947
 
 # 💫 About Me:
