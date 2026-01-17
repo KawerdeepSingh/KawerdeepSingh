@@ -1,6 +1,6 @@
 💫 Hi 👋, I'm Kawer
 
-A passionate Software Engineer Student || Java developer || Open to work
+A passionate Software Engineering Student || Java developer || Open to work
 
 Email Me 👉 ✉️ balikd663@gmail.com For Collaboration/Project or Anything Else. 😊
 
